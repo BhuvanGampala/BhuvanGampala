@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BhuvanGampala
 - 👀 I’m interested in ... Learning things i don't have knowledge in.
-- 🌱 I’m currently learning ... B-Tech Undergrad course in CSEtream
+- 🌱 I’m currently learning ... B-Tech Undergrad course in CSE Stream
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... @bhuvangampala1904@gmail.com
 - 😄 Pronouns: ...
